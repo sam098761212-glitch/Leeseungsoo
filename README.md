@@ -1,2 +1,0 @@
-# Leeseungsoo
-student
